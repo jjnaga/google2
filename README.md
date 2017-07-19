@@ -1,0 +1,1 @@
+This is the Google homepage done right (As of 7/18/17 thinking!)
